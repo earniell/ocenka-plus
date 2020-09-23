@@ -1,1 +1,1 @@
-# ocenka-plus.github.io
+# ocenka-plus
